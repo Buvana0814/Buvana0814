@@ -3,7 +3,9 @@
 - 🌱 I’m currently learning AI in Python
 - 💞️ I’m looking to collaborate on reaserch and AI 
 - 📫 How to reach me buvanamohanadass@gmail.com
-
+- 📚 A multipotentialite 
+- 😍 Harvard dream🏫 👩‍🔬 👩‍⚕️ 👩‍🚀 🔬 🔭 🩺 🧪 
+- 💻 coding enthusiast
 - ⚡ Fun fact:August 14 birthday🎂 🎉 🥳
 
 <!---
